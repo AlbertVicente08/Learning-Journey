@@ -1,4 +1,4 @@
-# 🚀 Mi Viaje al Top 0.01% en IA
+# 🚀 Mi Viaje.
 
 **Objetivo:** Convertirme en ingeniero de IA de élite para 2033
 
